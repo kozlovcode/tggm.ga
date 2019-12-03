@@ -1,4 +1,4 @@
 # Tggm.ga
-Copy to locked t.me
+Copy to locked https://t.me
 
 https://tggm.ga/youchannel / or / https://tggm.ga/joinchat/AaaAAaa
